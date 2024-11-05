@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Javascript
 - 💞️ I’m looking to collaborate on Python projects
-- 📫 How to reach me send me a message request
+- 📫 Discord:i_alina (You can msg me)
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
